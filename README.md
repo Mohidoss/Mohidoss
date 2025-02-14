@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Mohidoss
-- 👀 I’m interested in cricket 
-- 🌱 I’m currently learning project management 
-- 💞️ I’m looking to collaborate on learnings and responsibilities 
-- 📫 How to reach me any technical yhings
+- 👀 working at Cognizant as a manager 
+- 🌱 I’m currently learning project/program management 
+- 💞️ I’m looking to collaborate on learnings and development 
+- 📫 How to reach me anything you know
 - 😄 Pronouns: ...![1000110825](https://github.com/user-attachments/assets/e63b05ca-eb6c-4044-b7f2-7e90955a2b40)
 
 - ⚡ Fun fact: ...
